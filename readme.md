@@ -1,1 +1,1 @@
-# gophing aroung
+# gophing around
